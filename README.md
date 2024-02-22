@@ -1,1 +1,1 @@
-![TalHakak-CV](TalHakak-CV.png)
+![Tal Hakak - CV](Tal Hakak - CV.png)
